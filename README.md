@@ -14,6 +14,5 @@
 
 ### Cristina Sales
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
 
 ```
